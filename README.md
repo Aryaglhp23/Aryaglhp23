@@ -1,4 +1,4 @@
-Hi 👋 I Am A 17 Year Old FrontEnd Web Developer.
+Hi 👋 I Am A 17 Year Old im try to be a Full Stack Web Developer.
 
 About Me :
 
