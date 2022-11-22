@@ -1,4 +1,4 @@
-Hi 👋 I Am A 17 Year Old im try to be a Full Stack Web Developer.
+Hi 👋 I Am a 17 Year Old i'll be a Full Stack Web Developer.
 
 About Me :
 
